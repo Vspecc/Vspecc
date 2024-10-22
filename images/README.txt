@@ -1,0 +1,1 @@
+Di po gumagana yung background ko di po ata supported ng github yung .gif background, so bali pag rinun po sa github di po lumalabas yung background pero pag sa file po sa pc or laptop lumalabas po tulad ng sa Lab naten. Gumagana lang po yung background pag dinownload po sa mismong file. Thankyou po!
